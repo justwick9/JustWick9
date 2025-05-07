@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **atpp255@gmail.com**
 
-- ⚡ Fun fact **I am Self Driven developer**
+- ⚡ Fun fact **I am Self-Driven developer**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
